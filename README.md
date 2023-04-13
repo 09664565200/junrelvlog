@@ -1,2 +1,2 @@
 # junrelvlog
-Good singee
+Good singer
